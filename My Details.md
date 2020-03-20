@@ -1,5 +1,3 @@
-#My Requested Information
-
 Full name: MBAYA Emmanuel Baldwin
 
 Email: emmanuelbaldwin@gmail.com
